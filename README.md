@@ -1,0 +1,1 @@
+# Dhrutzuci_tech
